@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Zeshawn-Martis
 - 👀 I’m interested in music, sports
 - 🌱 I’m currently pursuing B-tech from MPSTME
-- 📫 How to reach me 
+- 📫 My insta handle martis_zeshawn
 - ⚡ In my free time i watch movies, read books and sing
 
 <!---
